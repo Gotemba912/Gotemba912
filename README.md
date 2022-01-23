@@ -1,5 +1,11 @@
-### Hi there 👋
+### Hi there my name is Yuka0745 👋
 
+please call me "Yuuka" or "Gotemba".<br>
+<br>
+私は Minecraft でアドオンやサーバーとかを作ってる者です。<br>
+私の Discord サーバー: <https://discord.gg/jeSg47pxkr><br>
+
+その他リンク集はここからどうぞ: <https://gotemba912.github.io/links.html>
 <!--
 **Gotemba912/Gotemba912** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
