@@ -3,7 +3,7 @@
 please call me "Yuuka" or "Gotemba".<br>
 <br>
 私は Minecraft でアドオンやサーバーとかを作ってる者です。<br>
-私の Discord サーバー: <https://discord.gg/jeSg47pxkr><br>
+私の Discord サーバー: <どっかにある><br>
 
 その他リンク集はここからどうぞ: <https://gotemba912.github.io/links.html>
 
